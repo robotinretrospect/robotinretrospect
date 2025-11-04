@@ -1,10 +1,12 @@
 hi
 
-read my rentry for a more extended bio 
+read my rentry for a more extended bio of me if you think i'm cool
 
-i'm usually above the benches at docks, safe server 1.
+i'm usually above the benches at docks, safe server 1
 
-i don't cater to touch triggers unless it's regiment related.
-i also would prefer if proship limit interaction at the very least. i'm uncomfortable with the label and those who associate with it
+i don't cater to touch triggers sorry i really don't think you should be on pony town in the first place, seek help
+i also would prefer if proship limit interaction. i'm uncomfortable with the label and those who associate with it
 
-i won't hesitate to hide you if i think you're weird. sorry, nothing personal. ok? ok
+i won't hesitate to hide you if i think you're weird (like openly incestuous skins or again, generally weird or annoying). sorry, nothing personal. ok? ok
+
+be my friend i like talking to people please talk to me blelele
