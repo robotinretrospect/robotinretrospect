@@ -4,7 +4,7 @@ hi, i'm cube! or ezra, whatever you know me best as!   ![b](https://64.media.tum
 
 read my rentry for more info. pony town please fucking add a bio option. i don't need this account
 
-i'm usually above the benches at docks, safe server 1. i'm *almost always* in my sona's skin, c.u.b.e, the pink haired robot, or romeo from minecraft storymode
+i'm usually above the benches at docks, safe server 1. i'm *almost always* in a skin of my various sonas. or romeo from minecraft storymode
 
 i don't care who interacts i'm pretty chill with most things? though **i won't hesitate to hide you if i think you're annoying** i'm talking openly incestuous skins or generally annoying or if you're like 13. sorry, nothing personal. ok? ok
 
