@@ -1,4 +1,4 @@
-[![.](https://i.postimg.cc/mD1vxQ80/tumblr-6de87a3e19aa9d677c81ee8f1c3c6629-2cfc8d1e-2048.png)](https://postimg.cc/DJFjLbVg)
+![.](https://64.media.tumblr.com/5eafc9121e6ee62ac9a65c0e1ccb2225/aed4e31d7e90ee90-4b/s2048x3072/1c906ed6562caac242a0e3bbce83df0a44c8c70a.pnj)
 
 hi, i'm cube! or ezra, whatever you know me best as!   ![.](https://64.media.tumblr.com/90491d2b2ff6ccc9dce2f8b632a0ba65/143064109ef441b0-5b/s75x75_c1/ad5e55c69fee6e55096b4a8ae346c1757678a89f.gifv)
 
@@ -12,4 +12,4 @@ i am in the regiment community! i'm currently an enlisted in FAR, an NCO in Spit
 
 > please be my friend! i love talking to people and i'm actively seeking new friends so hmu if we have a lot in common!!!
 
-[![.](https://i.postimg.cc/mD1vxQ80/tumblr-6de87a3e19aa9d677c81ee8f1c3c6629-2cfc8d1e-2048.png)](https://postimg.cc/DJFjLbVg)
+![.](https://64.media.tumblr.com/5eafc9121e6ee62ac9a65c0e1ccb2225/aed4e31d7e90ee90-4b/s2048x3072/1c906ed6562caac242a0e3bbce83df0a44c8c70a.pnj)
