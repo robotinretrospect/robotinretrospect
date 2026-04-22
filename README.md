@@ -5,8 +5,8 @@ hi, i'm ezra! crash or cube work too, whatever you know me best as!
 ***i cannot stress this enough read my rentry for more info***. i'm so lazy. pony town please fucking add a bio option. i don't need this account
 
 some things to note:
-- i'm usually above the benches at docks, safe server 1. i'm *almost always* in a skin of my various sonas. or aiden from minecraft story mode (comfort character)
-- i don't care who interacts i'm pretty chill with most things honestly? i kinda don't gaf. though **i won't hesitate to hide you if i think you're annoying**. i'm talking openly incestuous skins or if you're like 13. sorry, nothing personal. ok? ok
+- i'm usually above the benches at docks, safe server 1. i'm *almost always* in a skin of my various sonas, or romeo from minecraft story mode (comfort character)
+- i don't care who interacts i'm pretty chill with most things honestly? i kinda don't gaf. though **i won't hesitate to hide you if i think you're annoying or gross**. if you're a proshipper stay away from me you people are demented i think
 - you can cuddle or hide behind me regardless if i know you or not. i do not care. whispers and crowns and all that are welcome
 - i don't cater to touch triggers that much, sorry
 - i am in the regiment community!!
