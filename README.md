@@ -1,5 +1,3 @@
-![.](https://64.media.tumblr.com/ea6317fa9b0c96ea9d84d23432712ea5/a9d8576d3ee78291-88/s2048x3072/7ffd44dadcf36b7e46a22f3b525cc7e13d7517f9.pnj)
-
 hi, i'm ezra! crash or cube work too, whatever you know me best as!
 
 ***i cannot stress this enough read my rentry for more info***. i'm so lazy. pony town please fucking add a bio option. i don't need this account
@@ -12,5 +10,3 @@ some things to note:
 - i am in the regiment community!!
 
 > please be my friend! i love talking to people and i'm actively seeking new friends.. so whisper if we have a lot in common! i have discord and would be happy to give it 
-
-![.](https://64.media.tumblr.com/ea6317fa9b0c96ea9d84d23432712ea5/a9d8576d3ee78291-88/s2048x3072/7ffd44dadcf36b7e46a22f3b525cc7e13d7517f9.pnj)
