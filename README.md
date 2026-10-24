@@ -5,5 +5,6 @@ some things to note:
 - you can cuddle or hide behind me regardless if i know you or not. i do not care
 - keep in mind i am 22, i am a grown adult and i won't engage with anyone under 16 (i'm primarily on safe since it's the most popular and it's where all my friends are)
 
-proshippers leave me alone you're gross. 
-coal and friends please just leave me alone. idc about ponytown drama. i do not forgive you. stop bombarding my ata
+other:
+- proshippers leave me alone you're gross. 
+- coal and friends don't talk about me. idc about ponytown drama. i do not forgive you despite that document
